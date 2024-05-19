@@ -26,7 +26,6 @@
 ![image](https://github.com/Nadh2413/Git_TongHop/assets/117442476/a8e7ec86-d221-42e0-a93b-36a921a495d5)
 
 
-![image](https://github.com/Nadh2413/Git_TongHop/assets/117442476/b26c849b-68f7-444b-9841-ebbe0d4b6c8a)
 
 
 
